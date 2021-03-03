@@ -30,4 +30,4 @@ A big surprise hit me all of a sudden, graduating early became my only option. G
    3. Mythology
 
 
-[ My Art] (https://morenoshekinah2.wixsite.com/website)
+[ My Art ] (https://morenoshekinah2.wixsite.com/website)
