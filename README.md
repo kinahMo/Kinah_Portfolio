@@ -33,5 +33,23 @@ A big surprise hit me all of a sudden, graduating early became my only option. G
 [ My Art ] (https://morenoshekinah2.wixsite.com/website)
 
 
-(https://github.com/kinahMo/Kinah_Portfolio/files/6078729/SMoreno_MoviePoster_burlesque.pdf)
+![SMoreno_PhotoAD](https://user-images.githubusercontent.com/80000195/109863333-844edc80-7c2f-11eb-9b83-279bcc0b999a.jpg)
+
+
+My pieces
+
+
+![SMoreno_portweb_01](https://user-images.githubusercontent.com/80000195/109868519-b7946a00-7c35-11eb-8189-165bec6e253d.gif)
+
+
+![SMoreno_portweb_03](https://user-images.githubusercontent.com/80000195/109868570-c8dd7680-7c35-11eb-92ac-559eeb1fc985.gif)
+
+
+![SMoreno_portweb_09](https://user-images.githubusercontent.com/80000195/109868603-d4c93880-7c35-11eb-8a30-448f71ea25b5.gif)
+
+
+![SMoreno_portweb_11](https://user-images.githubusercontent.com/80000195/109868618-da268300-7c35-11eb-91c2-950f258afa01.gif)
+
+
+![SMoreno_portweb_06](https://user-images.githubusercontent.com/80000195/109868745-0215e680-7c36-11eb-926f-39e5b0daf791.gif)
 
