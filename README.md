@@ -31,3 +31,7 @@ A big surprise hit me all of a sudden, graduating early became my only option. G
 
 
 [ My Art ] (https://morenoshekinah2.wixsite.com/website)
+
+
+(https://github.com/kinahMo/Kinah_Portfolio/files/6078729/SMoreno_MoviePoster_burlesque.pdf)
+
