@@ -16,6 +16,18 @@ A big surprise hit me all of a sudden, graduating early became my only option. G
 > 
 
 ### Inspirations
-- Nature
-- the What ifs
+- Urban Environments 
+1. Botanical Gardens
+2. City
+3. People 
+- History
+1. Indian Culture
+2. Roman Culture
+3.Alantis
 - Wonderland
+1. Disney 
+2. Alternative Worlds
+3. Mythology
+
+
+[ My Art] (https://morenoshekinah2.wixsite.com/website)
