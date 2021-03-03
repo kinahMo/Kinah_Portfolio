@@ -21,9 +21,9 @@ A big surprise hit me all of a sudden, graduating early became my only option. G
    2. City
    3. People 
 - History
-   1. Indian Culture
-   2. Roman Culture
-   3.Alantis
+   1. The lives we didn't live
+   2. Ancestors 
+   3. The unknown
 - Wonderland
    1. Disney 
    2. Alternative Worlds
